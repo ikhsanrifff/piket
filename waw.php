@@ -1,1 +1,1 @@
-if u know
+if u know ngang ngong ngang ngong
